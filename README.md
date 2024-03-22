@@ -1,1 +1,1 @@
-# practica1
+Lucentini Tomas - 23426/0
